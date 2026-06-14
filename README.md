@@ -8,7 +8,7 @@
 
   *Transforming complex logic into seamless, high-performance digital experiences.*
 
-• [Portfolio](emediong-jonah.netlify.app) • [Email](mailto:emediongjonah66@gmail.com)
+• [Portfolio](https://emediongjonah.pxxl.click) • [Email](mailto:emediongjonah66@gmail.com)
 
 </div>
 
